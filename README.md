@@ -1,1 +1,0 @@
-# CTQM_OpenGraph
